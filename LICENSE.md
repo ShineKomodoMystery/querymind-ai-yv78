@@ -1,4 +1,4 @@
-# 
+# Top QueryMind script. Baixe e instale com verificação de compatibilidade e modo offline — rápido, seguro e fácil de usar.
 
 
 
